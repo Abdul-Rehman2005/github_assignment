@@ -1,1 +1,1 @@
-Collaborator’s edits
+Collaborator’s changes
